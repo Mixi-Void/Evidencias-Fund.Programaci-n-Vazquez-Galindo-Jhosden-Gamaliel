@@ -1,2 +1,2 @@
-# Evidencias-Fund.Programaci-n-Vazquez-Galindo-Jhosden-Gamaliel
+# Evidencias-Fund.Programación-Vazquez-Galindo-Jhosden-Gamaliel
 EVIDENCIAS
